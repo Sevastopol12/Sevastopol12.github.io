@@ -1,1 +1,0 @@
-# Sevastopol12.github.io
